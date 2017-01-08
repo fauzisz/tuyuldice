@@ -1,0 +1,2 @@
+# tuyuldice
+  make profit
